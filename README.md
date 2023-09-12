@@ -1,1 +1,1 @@
-### https://rarepingu.github.io/rarepingu
+### rarepingu
